@@ -217,4 +217,4 @@ Dreadnought is offered as a **full free version** with all features and updates 
 Join the battle in Dreadnought today! Download your **FREE version** now and start piloting your own spaceship in thrilling space combat!
 
 ---
-**Last updated:** 2026-09-30 22:55:45 UTC
+**Last updated:** 2026-10-01 01:55:41 UTC
